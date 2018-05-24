@@ -2,7 +2,7 @@
 
 ### Geography
 
-I live in the Rio de Janeiro, in Brazil.
+I live in the city of Rio de Janeiro, in Brazil.
 
 ### Reading
 
